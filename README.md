@@ -1,5 +1,5 @@
 # Bill Rix
-User experience & user interface designer focused on accessible products. Located in KCMO ✌️
+UX/UI, prompt engineer, & fintech researcher focusing on accessible products for all to enjoy. Located in KCMO ✌️
 
 🌐 https://billrix.design
 
